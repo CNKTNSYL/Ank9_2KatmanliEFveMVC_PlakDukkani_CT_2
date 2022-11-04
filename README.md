@@ -1,0 +1,1 @@
+# Ank9_2KatmanliEFveMVC_PlakDukkani_CT
